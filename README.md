@@ -5,7 +5,12 @@
 ## Demo
 
 
-**[Watch: all nine rule variations + a saved game replay (mp4)](#)**
+
+https://github.com/user-attachments/assets/74bbb2d6-dce6-46ea-9cd4-06276666a327
+
+
+
+**Watch: all nine rule variations + a saved game replay (mp4)**
 
 ## What it is
 
